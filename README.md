@@ -1,7 +1,7 @@
 # LMEEAAO
-An Experiment in Multiversal Non-Fiction
+An Interactive Experiment in Multiversal Non-Fiction
 
-i'm going to teach you to build your own reality so you learn to live outside systems of control. 
+i'm here to teach you to build your own reality so you learn to live outside all systems of control. 
 
 On March 22, 2023, i acted heroically in a way few people ever do. i had an opportunity to save someone's life. From that day on my reality shifted, altered, expanded, and created an awareness in me i had no prior conscious awareness of.
 Soon after that i understood i had a greater part to play in my own life. i knew there was more for me to do than what i was used to. 
@@ -56,6 +56,8 @@ _**Approaching the Fringe: Quantum Next Steps**_ - i introduce personal uses iâ€
 
 _**Paradise Engineering**_ - i bring all of the work together into a communal understanding of reality. i explain using examples of emergent strategy and community activity that we show up for ourselves so that we show up for and with each other. i explain the importance of discomfort, building resilience, and why it's important to pracitce our understanding of reality when we face hardship but that we don't have to do it alone.
 
-Whatever comes from these individual sections is up to each of us individually and all of us communally. We can expand or contract, shift, remove, rearrange, resubmit, branch off, or find any other number of available paths to create multiple new understandings of reality. We can build a world of many worlds together, beyond the human world. The more-than-human world needs us, and we need them.
+Whatever comes from these individual sections is up to each of us individually and all of us communally. We can expand or contract, shift, remove, rearrange, resubmit, branch off, or find any other number of available paths to create multiple new understandings of reality. We can build a world of many worlds together, beyond the human world. The more-than-human world needs us, and we need it.
 
 Thank you for joining me in the search for a better tomorrow. i'm so happy you're here.
+
+-Faden

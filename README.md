@@ -1,7 +1,9 @@
 # LMEEAAO
 **An Interactive Experiment in Multiversal Non-Fiction**
 
-_**LMEEAAO is an open-source cosmology. i provide the initial framework for an understanding of reality i've borrowed and repurposed for myself. You get to make it into anything you want.**_
+"You seek the path. I warn you away from my own. It can also be the wrong way for you. May each go his own way." CG Jung, _The Red Book_
+
+**LMEEAAO is an open-source cosmology. i provide the initial framework for an understanding of reality i've borrowed and repurposed for myself. You get to make it into anything you want.**
 
 it's possible to create your own reality. You can learn to live outside systems of control. i have tools to show you how.
 

@@ -1,6 +1,8 @@
 # LMEEAAO
 **An Interactive Experiment in Multiversal Non-Fiction**
 
+_**LMEEAAO is an open-source cosmology. i provide the initial framework for an understanding of reality i've borrowed and repurposed for myself. You get to make it into anything you want.**_
+
 it's possible to create your own reality. You can learn to live outside systems of control. i have tools to show you how.
 
 On March 22, 2023, i acted heroically in a way few people ever do. i had an opportunity to save someone's life. From that day on my reality shifted, altered, expanded, and created an awareness in me i had no prior conscious awareness of.
@@ -33,8 +35,6 @@ _**And i want you to refine it to be whatever you need it to be**_, which has be
 
 i am not interested in telling you how i live so that you copy me. i can guarantee that what i experience is unique to me and if you tried to emulate it exactly you'd be frustrated. You'd think i'm a liar.
 Instead, _i am here to tell my truth so that you can **prove** i'm a liar._ You get to decide your own truth.
-
-**LMEEAAO is an open-source cosmology. i provide the initial framework for an understanding of reality i've purpose-built for myself. You get to make it into anything you want.**
 
 _i want you, the reader, to become an active part of creating a new cosmology for yourself._ 
 

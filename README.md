@@ -1,7 +1,7 @@
 # LMEEAAO
-An Interactive Experiment in Multiversal Non-Fiction
+**An Interactive Experiment in Multiversal Non-Fiction**
 
-i'm here to teach you to build your own reality so you learn to live outside all systems of control. 
+it's possible to create your own reality. You can learn to live outside systems of control. i have tools to show you how.
 
 On March 22, 2023, i acted heroically in a way few people ever do. i had an opportunity to save someone's life. From that day on my reality shifted, altered, expanded, and created an awareness in me i had no prior conscious awareness of.
 Soon after that i understood i had a greater part to play in my own life. i knew there was more for me to do than what i was used to. 
@@ -14,7 +14,7 @@ My new life journey was defined by spirituality. i had little background in unde
 In the 3 years following my moment of heroism i've been writing and refining a manuscript of my findings. i've built a cosmology, an understanding of our universe and my own multiverse.
 
 By no means am i asserting that what i've written is scientific fact. i have no ability to experiment in "Western" scientific method to back up what i've claimed in this manuscript.
-In fact, i readily admit the possibility that any truth in my work, as it exists in this moment, only applies to me.
+In fact, i readily admit that any truth in my work, as it exists in this moment, only applies to me.
 
 _But that's only because no one else has seen it._
 
@@ -29,7 +29,7 @@ This work belongs to everyone.
 i am only a conduit.
 _**And i want you to refine it to be whatever you need it to be**_, which has been my intention with it from the start.
 
-**Life, the Multiverse, and Everything Everywhere All At Once** or **LMEEAAO** is an opportunity to build not just a new world or new universe, but to shift your mindset into expanding beyond anything you've ever known. My reality become mutliversal. Your reality can be whatever you want or need it to be. This imaginative work can help us learn how we live beyond the artifical limits we deal with every day. 
+**Life, the Multiverse, and Everything Everywhere All At Once** or **LMEEAAO** is an opportunity to build not just a new world or new universe, but to shift your mindset into expanding beyond anything you've ever known. My reality became mutliversal. Your reality can be whatever you want or need it to be. This imaginative work can help us learn how we live beyond the artifical limits we deal with every day. 
 
 i am not interested in telling you how i live so that you copy me. i can guarantee that what i experience is unique to me and if you tried to emulate it exactly you'd be frustrated. You'd think i'm a liar.
 Instead, _i am here to tell my truth so that you can **prove** i'm a liar._ You get to decide your own truth.

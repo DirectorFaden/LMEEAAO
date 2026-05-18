@@ -1,4 +1,4 @@
-**Chaos.**
+#**Chaos.**
 
 Much is born from chaos. Some plants only spread their pollen after a raging fire. Some species only develop new ways of living in chaos’ wake. Humanity follows this pattern. Self destruction is our way of dealing with unrest. Apathy in us gives way to a disconnected world. Alpha Waymond from Everything Everywhere All At Once says it best: “Our institutions are crumbling. No one trusts their neighbor anymore.”
 

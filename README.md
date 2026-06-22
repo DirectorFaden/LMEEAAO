@@ -1,7 +1,7 @@
 # LMEEAAO
 **An Interactive Experiment in Multiversal Non-Fiction**
 
-"You seek the path. I warn you away from my own. It can also be the wrong way for you. May each go his own way." CG Jung, _The Red Book_
+"All of us have to learn how to invent our lives, make them up, imagine them. We need to be taught these skills; we need guides to show us how. If we don't, our lives get made up for us by other people." Ursula K. Le Guin, - _The Wave in the Mind_
 
 **LMEEAAO is an open-source cosmology. i provide the initial framework for an understanding of reality i've borrowed and repurposed for myself. You get to make it into anything you want.**
 

@@ -1,4 +1,4 @@
-_EXERCISES FOR SELF-ASSESSMENT__
+_EXERCISES FOR SELF-ASSESSMENT_
 
 1. What parts of this story, if any, resonate with your life experiences?
 

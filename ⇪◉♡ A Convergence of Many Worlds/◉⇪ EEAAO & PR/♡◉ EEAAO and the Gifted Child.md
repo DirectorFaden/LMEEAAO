@@ -1,4 +1,4 @@
-__EEAAO and the Gifted Child__
+__♡◉ EEAAO and the Gifted Child__
 
 Though the idea is never explicitly stated or shown, i found it easy to read Evelyn as a Gifted Child. When greeting baby Evelyn into the world and being told her assigned sex, her father Gong-Gong's disappointment is clear on his face. He wanted a boy, someone to continue his family legacy. From the moment of her arrival, Evelyn was already at a disadvantage in her own family. What little we're shown of Evelyn growing up includes several instances of her father being over-bearing and controlling of her. If we add in current Evelyn's need to micromanage her life, the lives of her family members, and prove her value and worth to Gong-Gong as an upstanding mother and wife in the present, we can imply how much Evelyn has been molded by the expectations of her father. She has kept herself small while simultaneously overreaching in everyone else's lives.
 
